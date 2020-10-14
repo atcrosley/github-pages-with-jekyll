@@ -1,3 +1,5 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+This is the start of something new 
+lets see what we can do 
+Don't give up! 
